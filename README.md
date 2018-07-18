@@ -1,0 +1,2 @@
+# https-www.amgigs.com-blog-2018-06-25-how-to-become-a-freelancer-or-client-amgigs-
+ If you want to become a freelancer you only have to do is go on AMGIGS where you can register your self in few easy steps as a freelancer or client. You will get projects on amgigs  according to yours skills so it is important to showcase your technical skills in your profile. Surely you got a projects through AMGIGS.  You can work as a freelancer without disturbing your full time job 
